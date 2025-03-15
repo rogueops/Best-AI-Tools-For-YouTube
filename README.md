@@ -1,4 +1,4 @@
-# Best-AI-Tools-For-YouTube
+# Best AI Tools To Get Started on YouTube
 Top AI Toolset To Edit and Create Videos on YouTube
 
 # Fast & Easy Chat AI Scripting & Research Tool
